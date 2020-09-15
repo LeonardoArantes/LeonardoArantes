@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about Engineering
 - 📫 How to reach me: leonardo-arantes@live.com
 - ⚡ Fun fact: completely in love with the Finnish language and music/guitar enthusiast
--->
+
